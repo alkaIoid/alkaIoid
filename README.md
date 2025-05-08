@@ -12,5 +12,5 @@
 
 
 
-[last.fm](https://www.last.fm/user/ruleiri)⠀⠀⠀⠀[stuff](https://rentry.co/okkkkkkkkkkkkk)
+[last.fm](https://www.last.fm/user/ruleiri) | [stats.fm](https://stats.fm/user/renten?range=lifetime)⠀⠀⠀⠀[stuff](https://rentry.co/okkkkkkkkkkkkk)
 
